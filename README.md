@@ -1,1 +1,1 @@
-# Strona
+# Strona na zdanie
